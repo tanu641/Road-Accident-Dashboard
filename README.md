@@ -77,7 +77,7 @@ To analyze road accident trends across different timeframes, locations, road typ
 For queries or collaboration:
 
 **Tanu Verma**  
-📧 *[your-email@example.com]*  
+📧 *[tanuverma772021@gmail.com]*  
 📍 India
 
 ---
